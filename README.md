@@ -1,4 +1,4 @@
-# github.com-Divyask16
+Divyask16
 
 # Hi, I'm Divya S 👋
 
